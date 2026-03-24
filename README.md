@@ -1,0 +1,81 @@
+# H.E.R. – Damage
+
+> **歌詞登録ステータス：プレーン歌詞のみ**
+
+```
+If you got it,
+it ain't no question
+No, it ain't no room
+for guessin'
+No more than
+emotionally invested (No, no)
+Showin' you
+all me imperfections, oh
+If I let you,
+you'll take me for granted, yeah
+(You, you, you, you)
+If I'm worth more than
+you could manage, manage, yeah
+Open with me,
+oh we could be honest
+Closer to me,
+oh giving me solace
+Promise that
+you won't let me fall
+Holding me tight
+Loving me right
+Giving me life
+All night
+You could be
+(You could be)
+Telling me lies
+Making me cry
+Wasting my time
+The whole time
+So just be
+Careful what you take
+for granted, yeah
+'Cause with me know
+you could do damage
+You, you could do damage
+You, you could do damage, yeah
+Worried about it
+I'm putting pressure (You know)
+You'll only cut me if I let you
+No, he ain't the one,
+it's just for pleasure
+Either learn me or
+I'm a lesson gone
+If you want me don't take me
+for granted, yeah, yeah
+If I'm worth more than
+you could manage, baby
+Oh you're falling for me,
+oh baby I've caught it
+Ooh we could be whatever
+you wanna call it
+Promise that
+you won't let me fall
+Holding me tight
+Loving me right
+Giving me life
+All night
+You could be
+Telling me lies
+Making me cry
+Wasting my time
+The whole time
+So just be
+Careful what you take for
+granted, yeah
+'Cause with me know
+you could do damage
+You, you could do damage
+You, you could do damage
+Oh, you could do damage
+Know you could do damage, yeah
+Oh, you could do damage,
+yeah, yeah
+Oh, you could do damage,
+oh with me
+```
